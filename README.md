@@ -1,4 +1,4 @@
-Hola! Mi Nombre es Masuma Jaffery Aka Guriya Jaffery!
+Hola! Mi Nombre es Masuma Jaffery Aka Guriya!
 <!---
 - 👋 Hi, I’m @icodedreams1
 - 👀 I’m interested in ...
